@@ -56,6 +56,6 @@ ___ 밑줄
 
 ![메세지](이미지경로)
 
-![20221116_144226_479](https://user-images.githubusercontent.com/120349667/206955522-03765544-67ec-4840-81ed-aa7a80a46977.jpg)
+![20221116_144226_479](https://user-images.githubusercontent.com/120349667/206955665-6c3ddf16-1d5d-46d6-a161-549135bea99e.jpg)
 
 
